@@ -1,0 +1,1 @@
+# Notes talk Ismael-Joshua pour scénario

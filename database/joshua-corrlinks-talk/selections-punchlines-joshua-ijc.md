@@ -1,0 +1,5 @@
+# Sélections Punchlines Joshua - IJC
+
+- Nana’s Journey
+    
+    Ce film serait le nouveau ne plus ultra du cinéma extrême - le film le plus dérangeant, horrifiant, nihiliste, misanthrope, nihiliste, nianthrope, qui dénie la vie, poussant la turpitude à l'écran à des niveaux que l'on croyait jusqu'alors inimaginables. Je viserais à causer des dommages psychologiques permanents aux téléspectateurs en plongeant dans les profondeurs les plus sombres du mal humain, de la cruauté et de la dépravation, et comment Internet fait ressortir le pire chez les gens. Cependant, ce ne serait pas de l'exploitation. Il s'agirait d'un cinéma astucieux, intelligent et émotionnellement dévastateur qui vous arrache le cœur, le jette dans un mixeur et le boit. Tout dans ce film semblerait palpablement réel, avec un fort élément de pathos qui le rendrait d'autant plus bouleversant et déchirant.

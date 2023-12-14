@@ -1,0 +1,11 @@
+# At the exact same time? I thought I was gonna do it right after you did it.
+
+Créée par: Mona
+Date : June 15, 2015 10:02 PM
+Date de création: September 11, 2023 3:46 PM
+Dernière modification: September 13, 2023 12:21 PM
+Dernière modification par: Mona
+Notes: LES DATES ET HEURES DE LA DISCUSSION TWITTER SONT DES ESTIMATIONS.
+Réseau: TWITTER
+URL: https://www.courtlistener.com/docket/6259243/100/1/united-states-v-goldberg/
+person: AusWitness

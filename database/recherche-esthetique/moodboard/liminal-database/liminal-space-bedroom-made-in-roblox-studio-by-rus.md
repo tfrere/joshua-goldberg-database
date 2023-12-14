@@ -1,0 +1,5 @@
+# liminal_space_bedroom_made_in_roblox_studio_by_rustypickle2007_dfxckvh-pre
+
+Created: July 19, 2023 12:41 AM
+
+![liminal_space_bedroom_made_in_roblox_studio_by_rustypickle2007_dfxckvh-pre.jpg](liminal_space_bedroom_made_in_roblox_studio_by_rus%209a0c3d007edb460e94fc4c92b600f883/liminal_space_bedroom_made_in_roblox_studio_by_rustypickle2007_dfxckvh-pre.jpg)
