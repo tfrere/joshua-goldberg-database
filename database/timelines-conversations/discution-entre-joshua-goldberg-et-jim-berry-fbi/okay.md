@@ -1,3 +1,0 @@
-# Okay
-
-Étiquettes: Jim Berry

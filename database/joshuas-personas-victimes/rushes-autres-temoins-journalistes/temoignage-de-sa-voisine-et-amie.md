@@ -1,6 +1,0 @@
-# Témoignage de sa voisine et amie
-
-Created by: Kilian Achalme
-Last edited by: William Menguy
-
-*"I knew him my whole childhood," said the woman, who asked that her name not be used. "I just wasn't shocked. I mean, he was always kind of different."She asked us not to show her face, but this 20-year-old Jacksonville woman said she's known terror suspect Joshua Goldberg for much of her life."It was fun when we were younger. I remember we would play 'Cowboys and Indians' and games and stuff like that. But after that, I just never really talked to him," she said.She said Goldberg changed after they attended Sabal Palm Elementary together, that he was less social, more loner, and eventually left the school."He was more of a hermit-style kid after he became home-schooled. That's around the time he started acting different. He would never come outside. He would never play with any of the kids on the street."She hadn't seen Goldberg since the family moved to Orange Park and hadn't heard about him until the news broke that FBI agents claim he encouraging others to take part in violent ISIS-style terrorist attacks on American and Australian soil."It is so crazy," Goldberg's former neighbor and friend said. "Someone I have known my whole life."*

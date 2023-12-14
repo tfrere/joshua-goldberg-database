@@ -1,3 +1,0 @@
-# Snipers?
-
-Tags: Hendricks, Message

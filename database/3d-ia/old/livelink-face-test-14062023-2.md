@@ -1,3 +1,0 @@
-# Livelink face test 14062023 2
-
-[LiveLinkFace_20220605_MySlate_1_iPhone_ismael_jc.zip](Livelink%20face%20test%2014062023%202%2077d491e85351450288ca3590bf75ccfa/LiveLinkFace_20220605_MySlate_1_iPhone_ismael_jc.zip)

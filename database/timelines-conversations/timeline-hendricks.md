@@ -1,3 +1,0 @@
-# Timeline Hendricks
-
-[Timeline Hendricks](Timeline%20Hendricks%2051106c5cddc84d289f6905c2db2df2dd/Timeline%20Hendricks%20adf63d1bd8cb4c0887b017fcb0952243.csv)

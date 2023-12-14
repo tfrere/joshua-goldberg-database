@@ -1,3 +1,0 @@
-# Yeah.
-
-Étiquettes: Joshua Goldberg

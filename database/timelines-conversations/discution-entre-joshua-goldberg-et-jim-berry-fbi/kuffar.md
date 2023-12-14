@@ -1,3 +1,0 @@
-# Kuffar.
-
-Étiquettes: Joshua Goldberg

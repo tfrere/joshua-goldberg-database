@@ -1,1 +1,0 @@
-# Guest read / write management

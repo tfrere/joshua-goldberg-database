@@ -1,3 +1,0 @@
-# lol
-
-Tags: Hendricks, Message
